@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Idkwh4timd0ing
+- 👋 Hi, I’m Lia
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning computer science
 - 😄 Pronouns: she/her
